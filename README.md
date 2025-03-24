@@ -26,8 +26,8 @@
 <h3 align="center"=>Activity stuff or wtv!!!</h3>
 <p align="center">When im bored on weekends i like to stream or be streamed silly shows or games, I can also play on roblox,,,, but usually only like ONE game most of the time ur gonna have to ask nicely to try a diff game LOL(/nsrs!!) i also have steam but until i get a better laptop i can only run tf2 which i p much only play with my partner </3333</p>
 <p align="center">On busy days i'll be on pt in the valve area which is near the caves,, feel free to sit with until i have time 2 jump back on discord (which is like... uhh 3pm - 10pm for me in england [sweats]) </p>
-<p align="center">•------------------------------------------------------------------------------------------------------------•</p>
 <p align="center">``Just let it fly! (Juggalo juice!) Into the sky... (My faygo!) Don't wonder why... (Juggalo Juice!) Until you try! (My faygo!)``</p>
+<p align="center">•------------------------------------------------------------------------------------------------------------•</p>
 <br>
 <p>husband watched me crashout working on this live time 😭 </p>
 <br><img src="https://media.discordapp.net/attachments/1312193557368537099/1352751349649117335/eb5ed0cedeea2a05e570e486c35f7d6f.jpg?ex=67df275e&is=67ddd5de&hm=80265e4cc53c532bbb4eb8c152dc3646dc013cd35fc25da0ab7c383a3b55c223&">
