@@ -30,5 +30,5 @@
 <p align="center">•------------------------------------------------------------------------------------------------------------•</p>
 <br>
 <p>husband watched me crashout working on this live time 😭 </p>
-<br><img src="https://media.discordapp.net/attachments/1312193557368537099/1352751349649117335/eb5ed0cedeea2a05e570e486c35f7d6f.jpg?ex=67df275e&is=67ddd5de&hm=80265e4cc53c532bbb4eb8c152dc3646dc013cd35fc25da0ab7c383a3b55c223&">
+<br><img src="https://media.discordapp.net/attachments/1344089459418730590/1353839231449169950/eb5ed0cedeea2a05e570e486c35f7d6f.jpg?ex=67e31c89&is=67e1cb09&hm=1c0a5882c06e424e2e6489889ea4599ecd1223f6693a691f932712a0705a043f&">
 <p align="center">╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ✩  ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯</p>
