@@ -3,7 +3,7 @@
  <p align="center">╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ✩  ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮</p>
  <h2 align="center">Malware / Spirit</h2>
  <p align="center">
-  <img width="500" height="500" src="https://media.discordapp.net/attachments/1312193557368537099/1353465215064342548/Untitled78_20250323201554.png?ex=67e268f5&is=67e11775&hm=307db870c722d81db1f3e7b7d33815944046073f329e3c10dde458181f855751&=&format=webp&quality=lossless&width=552&height=552">
+  <img src="https://media.discordapp.net/attachments/1312193557368537099/1353465215064342548/Untitled78_20250323201554.png?ex=67e268f5&is=67e11775&hm=307db870c722d81db1f3e7b7d33815944046073f329e3c10dde458181f855751&=&format=webp&quality=lossless&width=552&height=552">
 </p>
 <p align="center">``Fear and Delight. All the way through the night! With a little daring do, oh I'll fall in love with you.``</p>
 <p align="center">I got distracted like 10 times and still counting while working on this.</p>
