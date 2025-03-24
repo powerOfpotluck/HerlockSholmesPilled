@@ -1,5 +1,6 @@
-ignore this for nowwwwww im busy but ill work on this l8r 💗
 
+ <h1 align="center">INTRO</h1>
+ -stuff about me will go here!!
 <!---
 HerlockSholmesPilled/HerlockSholmesPilled is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
