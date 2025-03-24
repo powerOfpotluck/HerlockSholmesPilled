@@ -10,7 +10,7 @@
 <p align="center">I'm a 17 y/o MORON</p>
 <p align="center">•------------------------------------------------------------------------------------------------------------•</p>
 <p align="center">My favorite things in the world r my partner💗, soul eater and ace attorney</p>
-<p align="center">If you found me on PT, there's a high chance I WON'T be back until mondays-fridays,,, even then i distract myself a bunch so im not really worth convo on there </3 LMFAOO</p>
+<p align="center">If you found me on PT, there's a high chance I WON'T be back online during sat and sund or during holidays,,, even then i distract myself a bunch so im not really worth convo on there </3 LMFAO</p>
 <p align="center">i'mmm also not that good at managing my convos so i get overwehlmed pretty ez if i talk in party chat, public AND whisper.. mb</p>
 <p align="center">if anyone fr wants to try contact me though with ease and less complication... im diskdetonator on disc!!!</p>
 <h2 align="center">Favorite characters from medias</h2>
