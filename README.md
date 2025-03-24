@@ -1,6 +1,6 @@
 
  <h1 align="center">INTRO</h1>
- <p align="center">``If I... If I chop you up in a meat grinder... And the only thing that comes out left of you is your eyeball... You're PROBABLY <B>DEAD</B>!``</p>
+ <p align="center">``I'm happy. I'm feeling glad, I got sunshine in a bag. God I'm useless. But not for long. My future is coming on.``</p>
  <br>-stuff about me will go here!!
 <!---
 HerlockSholmesPilled/HerlockSholmesPilled is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
