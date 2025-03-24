@@ -18,7 +18,7 @@
 <br>-Franken Stein [Soul eater]
 <br>-Herlock Sholmes [Ace Attorney TGAAC]
 <br>-Inspector Hosonaga [Ace Attorney TGAAC]
-<br>-Xefros Tritoh [Hiveswap] [Still me fr}
+<br>-Xefros Tritoh [Hiveswap] [Still me fr]
 <br>-Garry [IB]
 <br>-Shin Tsukimi [YTTD]
 <p align="center">``Do you look like me, do you feel like me? Do you turn into your effigy? Do you dance like this? Forever.``</p>
