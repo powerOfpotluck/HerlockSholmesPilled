@@ -1,7 +1,7 @@
 
  <h1 align="center">INTRO</h1>
  <p align="center">╭── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ✩  ⋅ ⋅ ── ✩ ── ⋅ ⋅ ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╮</p>
- <h2 align="center">Malware / Spirit</h2>
+ <h2 align="center">Malware / Swann</h2>
  <p align="center">
   <img src="https://media.discordapp.net/attachments/1312193557368537099/1353465215064342548/Untitled78_20250323201554.png?ex=67e268f5&is=67e11775&hm=307db870c722d81db1f3e7b7d33815944046073f329e3c10dde458181f855751&=&format=webp&quality=lossless&width=552&height=552">
 </p>
