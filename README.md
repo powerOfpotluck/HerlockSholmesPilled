@@ -8,3 +8,5 @@ Sorry if I don't understand but it really was a big problem. I'm still at the be
 I have not abruptly isolated myself or haven't had a spiral since we parted. Don't think of it as an attack but take it as criticism. I at least said goodbye to you but you didn't even give YOUR friend a heads up. PLEASE don't ditch people without explanation.
 
 Also you kind of made me feel like I had to be interested in what you were interested in for you to care... Yes I did kind of try to rebel with a lot of fandom hopping and not really engaging but that's because of how I felt.
+
+I'm sorry but seriously even if Kayson was thankfully not that effected it still kind of pissed me off and made me wish I had been a lot more direct instead of focussing on ending on a good note.
