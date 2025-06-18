@@ -5,4 +5,6 @@ Well, we won't be talking at all anymore so whatever I write here doesn't actual
 
 Sorry if I don't understand but it really was a big problem. I'm still at the belief that our friendship and relationship didn't matter to you as much as I thought. Please think on that and whether you can actually HANDLE having relationships before agreeing to them / asking someone else.
 
-I have not abruptly isolated myself or haven't had a spiral since we parted. Don't think of it as an attack but take it as criticism. I at least said goodbye to you but going didn't even give YOUR friend a heads up. PLEASE don't ditch people without explanation.
+I have not abruptly isolated myself or haven't had a spiral since we parted. Don't think of it as an attack but take it as criticism. I at least said goodbye to you but you didn't even give YOUR friend a heads up. PLEASE don't ditch people without explanation.
+
+Also you kind of made me feel like I had to be interested in what you were interested in for you to care... Yes I did kind of try to rebel with a lot of fandom hoping and not really engaging but that's because of how I felt.
